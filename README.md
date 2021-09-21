@@ -1,0 +1,2 @@
+# sumahonogamenmisetakunaiyo
+スマホの画面見せたくないよーゲーム
